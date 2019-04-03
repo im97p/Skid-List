@@ -16,3 +16,4 @@ you can see the 234434343454 finals that was in there (he took it from a leaked 
 Dape - a youtuber who isnt as active. owes me and another person money. kept asking for money for irl shit so we let him borrow. never recorded
 when he was partnered and never logged on. Just dont deal with him.
 
+HarmfulAim - this kid thinks hes some fucking CNN News channel. he gets upsets once and trheatens to take a fucking swat team to ur house. this kid cannot code either, he says he can. also stay away from his fucking austism riddles servers
